@@ -1,4 +1,4 @@
-# 4CZ
+# J9C
 
 hi im janky owner of purelxw and not so pro python  ~~skid~~ coder
 
