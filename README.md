@@ -3,7 +3,7 @@
 hi im J9C owner of purelxw and not so pro python  ~~skid~~ coder
 
 
-if u need help w/ smth just pm me on cord Janky#1374
+if u need help w/ smth just join discord.gg/rejects and dm JJ
 
 
 🥀
