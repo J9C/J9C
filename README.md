@@ -1,6 +1,6 @@
 # J9C
 
-hi im janky owner of purelxw and not so pro python  ~~skid~~ coder
+hi im J9C owner of purelxw and not so pro python  ~~skid~~ coder
 
 
 if u need help w/ smth just pm me on cord Janky#1374
